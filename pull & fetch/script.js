@@ -1,0 +1,2 @@
+dani pagal ha[';
+  
